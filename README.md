@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Java-Coffee1
 - 👀 I’m interested in PLANES RC
-- 🌱 I’m currently learning everthing
 - 📫 How to reach me javamurray2@gmail.com
 - 😄 Pronouns: they/them/she/her
 - ⚡ Fun fact: I like to make things
